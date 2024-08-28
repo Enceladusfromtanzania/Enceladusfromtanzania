@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Enceladusfromtanzania
 - 👀 I’m interested in planetdex
 - 🌱 I’m currently learning discord dexes
-- 💞️ I’m looking to collaborate on planetdex
+- 🎵 my favorite song is Infernoplex By Dimrain47
 - 📫 How to reach me youtube/discord/roblox
 - 😄 Pronouns: chad/tanzania
-- ⚡ Fun fact: my youtube account has 401 subs
+- ⚡ Fun fact: my youtube account has 472 subs
 
 <!---
 Enceladusfromtanzania/Enceladusfromtanzania is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
